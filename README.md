@@ -9,3 +9,5 @@
 
  # 
   ![](https://komarev.com/ghpvc/?username=3nginner-lime&style=flat&color=4d306a&label=Gremlins) 
+
+ ships & rp dni plse
